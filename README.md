@@ -1,1 +1,1 @@
-# uzd_vc
+Ņikita Gorodņičevs
